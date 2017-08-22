@@ -1,2 +1,2 @@
 # amarthaluranjaneya
-Amarthalur Anjaneya
+amarthaluranjaneya.in
